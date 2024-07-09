@@ -1,4 +1,7 @@
-## Hi there 👋
+## 歡迎來到sunrise的無名小站
+
+心情：英文翻譯的也被抄了，風聲鶴唳啊……
+
 ![:name](https://count.getloli.com/get/@SunriseStation?theme=rule34)
 
 <!--
