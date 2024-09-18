@@ -1,6 +1,6 @@
 ## 歡迎來到sunrise的無名小站
 
-心情：英文翻譯的也被抄了，風聲鶴唳啊……
+心情：好懶喔_(:3 」∠ )_
 
 ![:name](https://count.getloli.com/get/@SunriseStation?theme=rule34)
 
